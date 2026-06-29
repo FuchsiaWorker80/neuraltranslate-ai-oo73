@@ -1,4 +1,4 @@
-# 
+# Meilleur NeuralTranslate script. Téléchargez et installez avec prêt pour l'intégration et téléchargement rapide — rapide, sécurisé et facile à utiliser.
 
 
 
